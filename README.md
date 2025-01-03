@@ -1,3 +1,3 @@
 ### 'Sup? 👏
 
-I am a software engineer that lives in Nashville.
+I am a software engineer that lives in Indiana.
